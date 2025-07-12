@@ -1,7 +1,7 @@
 **I believe Lithuania committed more crimes when they helped the Chinese Communist Party insult me and hurt me when I was in their asylum accommodations. And then the UK helps them and committed even more crimes in the process.
 
 What I suffered include but not limited to:
-- permanent health damages, I am not coughing for little to no reason every day, and they still continue to cause more damages
+- permanent health damages, I am not coughing for little to no reason every day, and they still continue to cause more damages. This alone I do not understand how it's behavior of a modern human.
 - dehumanizing extreme surveillance which they use to facilitate other crimes and pair it with substances and unknown devices to entertain themselves at my expense
 - constant harassment
 - insult
